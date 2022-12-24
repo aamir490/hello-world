@@ -1,4 +1,4 @@
-<h1> Hello, MR : mujtaba ( surat ) !!   </h1>
-<h2> Bhai teri shadi ghar me hi hogi tension mat le ?? </h2>
-<h2> Nana mobile no ; 9890360458 </h2>
-<h2> bahot mubarak ho .................. </h2>
+<h1> Hello, MR : obaid  ( marhoom ) !!   </h1>
+<h2> Bhai teri bhaati kb hai ? bhot bhook lagi hai </h2>
+<h2> Nana mobile no ; 50760729 </h2>
+<h2> aaj khilade kameeene ??? kitna miser hai tu bsdk  .................. </h2>
